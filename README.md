@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JahidulIslamSQA
+- 👋 Hi, I’m @JahidulIslam
 - 👀 I’m interested in working with competitive environment where i have the opportunity to give my full effort.
 
 - 📫 I am available on Gmail,Facebook,WhatsApp, Etc.
